@@ -1,2 +1,2 @@
 # bootstrap1
-College BootStrap tutorial
+College BootStrap tutorial :hand:
