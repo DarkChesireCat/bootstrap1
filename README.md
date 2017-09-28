@@ -2,4 +2,4 @@
 ## BootStrap tutorial
 by James September 28th 2017
 
-Doing :100:% on my work. :+1:
+:100::100::laughingCrying::100::100::fire::fire:
